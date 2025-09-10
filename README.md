@@ -1,0 +1,1 @@
+# tradutor_r-pido
